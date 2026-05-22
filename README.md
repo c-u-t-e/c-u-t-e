@@ -13,7 +13,7 @@
 
 
 <p align=center>
-. bassie , sua , shelly and averythemayo fictkin # <img width="20" height="20" alt="whiefj" src="https://github.com/user-attachments/assets/efeba688-41a3-4fb9-8781-52d5e5d27896" />
+bringing this readme back! # <img width="20" height="20" alt="whiefj" src="https://github.com/user-attachments/assets/efeba688-41a3-4fb9-8781-52d5e5d27896" />
 
 
 
